@@ -3,7 +3,7 @@
 - 🌱 I’m currently Studying in KIIT,Bhubaneswar
 -  💞️ I’m looking to collaborate on 
 - 📫 How to reach me by my insta id @2findart
-- 😄 Pronouns: Lazy
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: >>>
 <!---
 Karmasbits/Karmasbits is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
